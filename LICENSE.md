@@ -1,4 +1,4 @@
-# 
+# Get the ultimate dexscreener sniper bot with rare Automation for dexscreener sniper bot | take-profit & pump-detection. Featuring take-profit and pump-detection, it's the best
 
 
 
